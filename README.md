@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lluisfranco
 - 👀 I’m interested in lots of not dev things, so...
-- 🌱 I’m currently learning lots of not dev things
+- 🌱 I’m currently learning lots of not dev things xD
 - 💞️ I’m not looking to collaborate on anything :P
 - 📫 More info about me at [lluisfranco.com](https://lluisfranco.com)
 
